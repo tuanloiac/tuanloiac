@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @tuanloiac
+- 👀 I’m interested in playing football and running
+- 🌱 I’m currently learning IB at FPT
